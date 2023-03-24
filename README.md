@@ -4,8 +4,5 @@
 I´m a Full Stack Developer 💻
 
 
-Connect with me
-
-
-https://www.linkedin.com/in/loreley-milazzo-448691238/
+Connect with me:  https://www.linkedin.com/in/loreley-milazzo-448691238/
 
